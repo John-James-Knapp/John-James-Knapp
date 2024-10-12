@@ -2,7 +2,7 @@
 - 👀 I’m interested in Pickleball, Outdoors, Weightlifting 
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on any project that piques my interest
-- 📫 How to reach me john.jame.knapp2@gmail.com
+- 📫 How to reach me john.james.knapp2@gmail.com
 - 😄 Pronouns: Whatever you want.
 - ⚡ Fun fact: ...
 
